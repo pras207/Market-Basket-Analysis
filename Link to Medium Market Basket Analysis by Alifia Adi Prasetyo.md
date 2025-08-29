@@ -1,0 +1,1 @@
+Link to Medium Market Basket Analysis by Alifia Adi Prasetyo: https://medium.com/@alifiaadi34/mengenal-market-basket-analysis-cara-menemukan-pola-belanja-konsumen-dengan-data-ef184653c129
